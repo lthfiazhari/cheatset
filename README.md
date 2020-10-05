@@ -1,1 +1,1 @@
-# cheatset
+Ringkasan ringkasan
